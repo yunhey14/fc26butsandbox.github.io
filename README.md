@@ -1,3 +1,2 @@
 # fc26butsandbox.github.io
-
-this is ai
+something i wanted for a long time
